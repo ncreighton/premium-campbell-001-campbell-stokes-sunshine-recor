@@ -1,0 +1,2 @@
+# premium-campbell-001-campbell-stokes-sunshine-recor
+Tired of squinting at scorched cards, misplacing your daily records, or struggling to spot sunshine trends in a sea of paper? The Campbell Stokes Sunshine Recorder Card Reading Log brings order to your analog data with a digital home designed specifically for your burn cards.  This Notion template solves the pain of managing physical card readings
